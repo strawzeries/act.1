@@ -1,3 +1,0 @@
-## barbie
-
-hello andrea pinedz
